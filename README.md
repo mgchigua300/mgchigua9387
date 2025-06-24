@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://hj-538.pages.dev/">区网站进入</a>
 
-点击访问：<a href="https://hj-484.pages.dev/">黑料网</a>
+点击访问：<a href="https://hj-484.pages.dev/">正式入口</a>
 
 主要内容：
 
